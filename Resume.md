@@ -18,11 +18,11 @@ To obtain challenging opportunities that not only helps me to enhance / develop 
 **Business development intern** (October 2022- Present)
 
 Summary of your role
--       Developing marketing campaigns targeted to potential clients 
--       Building and cultivating business relationships
--       Big Data cleaning and manipulation 
--       Creating customer facing CRMs to create pipelines between clients and customers
--       Building Marketing strategies and campaigns from ground up
+-  Developing marketing campaigns targeted to potential clients 
+-  Building and cultivating business relationships
+-  Big Data cleaning and manipulation 
+-  Creating customer facing CRMs to create pipelines between clients and customers
+-  Building Marketing strategies and campaigns from ground up
 
 
 ## Srijan Spectrum LLC  (Seattle, WA)
@@ -31,10 +31,10 @@ Summary of your role
 
 Summary of your role
 
--       Established ground up operations of parent company “Srijan Spectrum Pvt. Ltd.,” as an independent entity in Seattle over the summer
--       Engaging and maintaining strategic partnerships with North-West corporate clients on their strategic direction, processes and priorities to identify potential business in areas Data Analytics, Enterprise resource planning etc.,
--       Maintaining talent pipeline for consistent and effective execution of recruiting plan to ensure quantity and quality of talent based on forecasts
--       Generating revenue for clients and their organizations by executing projects/requirements for customers.
+- Established ground up operations of parent company “Srijan Spectrum Pvt. Ltd.,” as an independent entity in Seattle over the summer
+- Engaging and maintaining strategic partnerships with North-West corporate clients on their strategic direction, processes and priorities to identify potential business in areas Data Analytics, Enterprise resource planning etc.,
+- Maintaining talent pipeline for consistent and effective execution of recruiting plan to ensure quantity and quality of talent based on forecasts
+- Generating revenue for clients and their organizations by executing projects/requirements for customers.
 
 
 ## PSI Upsilon Fraternity, UW  (Seattle, WA)
@@ -42,10 +42,10 @@ Summary of your role
 ** President/Recruitment Chair ** (July 2020 – Sep 2022 )
 
 Summary of your role
--       Oversaw and coordinated recruitment for the 2020-2022 school years. 
--       Trained 50 new members for proper procedures, recruitments rules and regulations. 
--       Organized and Oversaw events including networking and recruitment events with limited budgets. 
--       Primary contact with alumni network to coordinate funding 
+- Oversaw and coordinated recruitment for the 2020-2022 school years. 
+- Trained 50 new members for proper procedures, recruitments rules and regulations. 
+- Organized and Oversaw events including networking and recruitment events with limited budgets. 
+- Primary contact with alumni network to coordinate funding 
 
 
 ## University of Washington, UW  (Seattle, WA)
